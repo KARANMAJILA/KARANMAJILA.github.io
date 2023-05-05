@@ -1,1 +1,0 @@
-# KARANMAJILA.github.io
